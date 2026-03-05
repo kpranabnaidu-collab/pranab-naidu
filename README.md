@@ -1,2 +1,0 @@
-# pranab-naidu
-Career Website
